@@ -1,7 +1,8 @@
 ![](https://pbs.twimg.com/profile_banners/1413227896827785226/1625776636/1080x360)
 ![Profile views](https://gpvc.arturio.dev/AlkebuLANs)
 
-kkkkkk
+AlkebuLAN meaning Mother of Nations or Mother of Mankind. So it was only ideal when you trying to create a single currency for Africa, the name Africa is ignored to remove the shackles put on her by her European masters.
+Africa's future currency will be known as The Alkebu LAN's Money. A single currency, from Algeria to South Africa and from Senegal to Somalia. No more currency conversion between Nigeria and Ghana or from Ethiopia to Sudan. There won't be Sudan and South Sudan or Ethiopia and Eretria. This was the creation by the European colonisers.
 
 
 
